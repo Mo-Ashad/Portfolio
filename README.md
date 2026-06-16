@@ -5,3 +5,4 @@ Today I was learn Claude  computing on coursera.
 That is very interesting calude computing.
 16/06/2026 Today i learn claod topics but today i does't learn on coursera i learn on youtube
 i don't know why but today i am feeling tired 
+i don't know what i am doing what's going with me i am feeling so bad for me for my mother hope.
