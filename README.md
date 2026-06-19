@@ -11,3 +11,4 @@ And today i learn how to deploy our code on AWS lamda
 
 I'm thinking my chatboat upgrade like open ai.
 Currently I'm working on my second project. May be i will complete two or three days.
+And then i will learn about kuernet deep knowledge and Linux
