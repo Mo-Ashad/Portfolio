@@ -13,3 +13,5 @@ I'm thinking my chatboat upgrade like open ai.
 Currently I'm working on my second project. May be i will complete two or three days.
 And then i will learn about kuernet deep knowledge and Linux
 20/06/2026 in the day i was not open my leptop. 
+today i learn only one hours
+My college will start 9 july i am prepairing myself for college and doing well.
