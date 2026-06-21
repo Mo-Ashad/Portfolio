@@ -17,3 +17,4 @@ today i learn only one hours
 My college will start 9 july i am prepairing myself for college and doing well.
 Today i was watch the Raj Samani podcast. He is a such a great advisor and greate podcaster.
 IF you are depressed then you should watch his motivation videos and if you have business mindset then you should watch his podcast businessman podcast video Raj Samani
+May be in starting you will boared but watch without any judge and then you will learn many thing that you does not know that 
