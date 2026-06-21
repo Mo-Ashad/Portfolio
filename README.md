@@ -16,3 +16,4 @@ And then i will learn about kuernet deep knowledge and Linux
 today i learn only one hours
 My college will start 9 july i am prepairing myself for college and doing well.
 Today i was watch the Raj Samani podcast. He is a such a great advisor and greate podcaster.
+IF you are depressed then you should watch his motivation videos and if you have business mindset then you should watch his podcast businessman podcast video Raj Samani
