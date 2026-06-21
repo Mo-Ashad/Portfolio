@@ -15,3 +15,4 @@ And then i will learn about kuernet deep knowledge and Linux
 20/06/2026 in the day i was not open my leptop. 
 today i learn only one hours
 My college will start 9 july i am prepairing myself for college and doing well.
+Today i was watch the Raj Samani podcast. He is a such a great advisor and greate podcaster.
