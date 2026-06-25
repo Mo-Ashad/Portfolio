@@ -20,3 +20,4 @@ IF you are depressed then you should watch his motivation videos and if you have
 May be in starting you will boared but watch without any judge and then you will learn many thing that you does not know that 
 Today i was complete my internship Deecodelabs.
 i Was upload video explaination on LinkedIN.
+And now i am learning Power BI
