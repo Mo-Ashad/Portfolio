@@ -21,3 +21,4 @@ May be in starting you will boared but watch without any judge and then you will
 Today i was complete my internship Deecodelabs.
 i Was upload video explaination on LinkedIN.
 And now i am learning Power BI
+today i enjioyed all day.
