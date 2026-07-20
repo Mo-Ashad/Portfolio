@@ -25,4 +25,4 @@ today i was very sad i don't know why.but i don't know what's happening with me.
 today i weak up 6:30 and i was ready for college and went to college.
 Remember one thing keep going and keep working one day you will success IN Sha Allah. won't worry allah always.
 Today I'm learning how to downloads tools for 
-Consistency
+Consistency,learning,
