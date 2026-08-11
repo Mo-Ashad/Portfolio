@@ -29,3 +29,4 @@ today i weak up 6:30 and i was ready for college and went to college.
 Remember one thing keep going and keep working one day you will success IN Sha Allah. won't worry allah always.
 Today I'm learning how to downloads tools for 
 Consistency,learning,thinking what i learn,
+Today i learn Amazon EC2 Services 
