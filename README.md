@@ -30,3 +30,4 @@ Remember one thing keep going and keep working one day you will success IN Sha A
 Today I'm learning how to downloads tools for 
 Consistency,learning,thinking what i learn,
 Today i learn Amazon EC2 Services and if our EC2 service is stop then what should i check and how to fix that.
+Today i learn networking basics LAN,WAN etic.
