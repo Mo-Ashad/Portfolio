@@ -33,4 +33,5 @@ Today i learn Amazon EC2 Services and if our EC2 service is stop then what shoul
 Today i learn networking basics LAN,WAN etic.
 And i deploy my portfolio on netlify.app
 Today I revise the Iaas,PaaS,LaaS,Services. And today i completed one week task of internship.
+today I learn about Azure Services and i did share my credentials on my LinkedIn profile. 
 
