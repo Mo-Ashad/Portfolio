@@ -34,4 +34,5 @@ Today i learn networking basics LAN,WAN etic.
 And i deploy my portfolio on netlify.app
 Today I revise the Iaas,PaaS,LaaS,Services. And today i completed one week task of internship.
 today I learn about Azure Services and i did share my credentials on my LinkedIn profile. 
-Now currently focusingon my communication skills.
+Now currently focusingon my communication skills. and i make daily consistency
+
